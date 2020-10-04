@@ -1,0 +1,1 @@
+<!doctype html><html lang="en"><head><meta charset="UTF-8"><title>BIRSHRESHTHA  MUNSHI ABDUR ROUF PUBLIC COLLEGE</title><meta http-equiv="refresh" content="0;https://www.abdurroufcollege.ac.bd/portal/public/"><script language="javascript">window.location="https://www.abdurroufcollege.ac.bd/portal/public/";</script></head><body></body></html>
